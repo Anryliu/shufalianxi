@@ -6,6 +6,11 @@
 ![书法1](./shufa/WechatIMG2.jpeg)
 
 # 个人硬笔练习
+
 ![书法1](./shufa/WechatIMG3.jpeg)
+
+### 天道酬勤
+![书法1](./shufa/WechatIMG4.jpeg)
+
 
 
