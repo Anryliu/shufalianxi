@@ -5,7 +5,7 @@
 ![书法1](./shufa/WechatIMG7.jpeg)
 ![书法1](./shufa/WechatIMG2.jpeg)
 ### 虎 的书写
-![书法1](./shufa/11.jpeg)
+![书法1](./shufa/11.jpg)
 
 # 个人硬笔练习
 
